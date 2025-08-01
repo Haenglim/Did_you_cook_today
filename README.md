@@ -34,7 +34,7 @@ We hope you'll always remember to eat well as you continue contributing to scien
 * [Miso Mackerel](https://www.sirogohan.com/sp/recipe/sabamisoni/amp/) - Prep Time 40min (Kaede)
 * [Kimchi Fried Rice](https://www.maangchi.com/recipe/kimchi-bokkeumbap) - Prep Time 30min (Amy)
 * [Fish Fragrant Eggplant (Yuxiang Qiezi) – spicy tomato‑chili eggplant](https://thewoksoflife.com/fish-fragrant-eggplant-yuxiang-qiezi/) - Prep Time ~20min (Ji)
-
+* [Egg tteokbokki](https://futuredish.com/tteokbokki-eggs-doesnt-get-better/) - Prep 20min (Haenglim)
 
 
 
